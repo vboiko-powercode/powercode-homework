@@ -1,1 +1,0 @@
-# powercode-homework
